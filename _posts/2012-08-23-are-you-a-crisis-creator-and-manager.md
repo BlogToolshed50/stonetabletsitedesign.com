@@ -1,0 +1,16 @@
+---
+id: 965
+title: Are You A Crisis Creator And Manager?
+date: 2012-08-23T20:49:00+00:00
+author: admin
+layout: post
+guid: http://www.stonetabletsitedesign.com/2012/08/23/are-you-a-crisis-creator-and-manager/
+permalink: /2012/08/23/are-you-a-crisis-creator-and-manager/
+categories:
+  - General living
+---
+Management by crisis has become one of the most popular terms. These people allow a crisis to develop and then act upon it. They never try to anticipate a crisis, but act only when the full-blown crisis arrives. Why do they manage like this? They behave in this way because they subconsciously enjoy fighting crisis, and for that they manufacture one.
+
+A good manager has few important tasks. To set goals, to achieve them, to manage resources effectively, to anticipate problems, to fight them if they come un announced, to think and plan of future and to prepare the organization to stay ahead. Some managers ignore the problems when they are small. Instead they pay their total attention to achieving given work. They sometimes believe that a problem may get solved in the course of time. Some times that does happen, but most of the times, it does not. At that point they have a crisis with them that needs immediate attention. They then leave all other work and put all the resources of the organization to fight the crisis. After fighting the crisis they present the case study to top management about how they fought the crisis successfully. Most of the top managers don&#8217;t ask &#8211; why was the problem not tackled in infancy, but applaud the manager for doing excellent fire fighting.
+
+If you know that the electrical wiring in your building is old and needs immediate repair, why ignore it? Why not get it replaced in time? But that will never be recognized. That will be classified under general maintenance. If afire engulfs the building and you are able to save most of the precious papers, you will be applauded. This looks very improbable, but look around you and you will find a person with these characteristics.

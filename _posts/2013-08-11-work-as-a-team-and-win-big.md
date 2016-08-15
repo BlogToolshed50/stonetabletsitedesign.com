@@ -1,0 +1,22 @@
+---
+id: 1221
+title: Work As A Team And Win Big
+date: 2013-08-11T21:49:00+00:00
+author: admin
+layout: post
+guid: http://www.stonetabletsitedesign.com/?p=1221
+permalink: /2013/08/11/work-as-a-team-and-win-big/
+categories:
+  - General living
+---
+“The strength of the team is each individual member&#8230;the strength of each member is the team.” Coach Phil Jackson of the legendary Chicago Bulls team once was quoted for expressing his belief in his team. Jackson was born in Deer Lodge Montana and began his basketball career at the University of North Dakota. He was drafted by the New York Knicks in 1967. He played forward and was a superb defensive player. He remained with the Knicks until 1980. He then entered coaching and has proven to be extremely talented with his next chosen field. In 1989, he rose to become the head coach of the Chicago Bulls. He is known for his “triangle offense” scheme as well as holistic approach to coaching players. Influenced by the Eastern Philosophy, Zen, he was nicknamed “The Zen Master” by the sports media. He is extremely successful at motivating and stimulating teamwork among disparate players. Jackson handled the Bulls during the team&#8217;s glory days, directing NBA superstars like Dennis Rodman, Scottie Pippen and “His Airness” Michael Jordan. In his nine years as Bulls coach, Jackson won six championships. He got nine NBA championship rings to boot including three from the LA Lakers, which tied him with Red Auerbach for the all-time lead in most championships won. The chemistry between Jackson and his team was untouched and was on a level most coaches could only dream of. The respect shared between the players and the coach was a key factor to the championships they achieved.
+
+However, institutions such as schools, our favorite pastimes and even our own families emphasize winning individually. By being the best and coming out on top on our own. Even in our places of work, some find it hard to exemplify teamwork. Workers are rarely raised in environments that emphasize true teamwork.
+
+Companies such as those who are involved in Customer Service should know that all staff has to be trained on basic customer service skills and communication and follow up skills. Problems can arise like service or communication breakdown when employees are not properly trained. It can occur between the staff or between two employees. This is where teamwork comes in. The company has to think teamwork when it comes to customer service. They have to realize that the customer does not classify individuals in the company based on their business unit, department or position, customers see them as one entity.
+
+There are individuals and even web-based lecture groups who offer training to become effective team members and work as a team in a company. These trainings will help an employee or the team to become more productive. It can also help recognize the team development process, differentiate between a team and a group and support reliable team methods. It will also assist employees understand their roles, while committing to team goals. Trainings that should be taken care into consideration by employers as these will improve customer satisfaction, increase sales revenues, raise collection rates and help to challenge and retain the best people. It will also benefit the company in valuing diverse people, ideas, backgrounds, and experiences.
+
+We have to also understand that people who thrive in the customer service department are usually relational people. They are interested in what others feel, as opposed to what they do. To motivate relational people, employers will need to reach out to them on a personal level, find out how they feel about issues. Welcome team building sessions and focus on exercises or activities that allow them to express themselves. This will strengthen social relations and eventually, it will help teamwork in the office.
+
+Teamwork not only in basketball is essential in handling different individuals with various temperaments. Teamwork is also important in giving value to what the team or a company aspires. Fostering teamwork is creating a work culture that values collaboration. In a teamwork environment, people understand and believe that thinking, planning, decisions and actions are better when done together. When teamwork is best applied in a company, it is not far that they will also win championships just like what Coach Phil Jackson has done to his team.

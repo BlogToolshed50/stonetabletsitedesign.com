@@ -1,0 +1,18 @@
+---
+id: 1512
+title: How to Achieve Success in School
+date: 2016-01-08T06:56:00+00:00
+author: admin
+layout: post
+guid: http://www.stonetabletsitedesign.com/?p=1512
+permalink: /2016/01/08/how-to-achieve-success-in-school/
+categories:
+  - General living
+---
+Although academic excellence is not a requirement of overall happiness and quality of life of a person, being successful in school, regardless of whether one is successful in academics or sports can be seen to be a kind of foundation for a person&#8217;s future. When one is successful in school, he or she will have more direction and focus in life. Successful students know what they want to do with their lives because through their successes in school, they find their true potential. Successful students are clearer about their objectives, talents, interests and capabilities.
+
+Many people play different roles in the life of a child, therefore, they will all contribute, in their own way, to the success of the individual. For one, the parents. Parents who are patient, loving, caring, supportive and understanding will provide their children the basis of understanding that helps them achieve success in school. As we all know, it depends on the personal characteristics and personality of the individual. If the child is born naturally driven, it will not take much from the parents to help their child succeed in school. The teachers and coaches all have a large functional role to play in helping students achieve success too. Their consistent guidance and attention to individual students will pay off if the students become receptive of their lectures and advice. For an individual to succeed in school, they must know who to mix around with. First, we have the parents and guardians; then, we have the teachers and coaches; third, we have the student; and finally, the friends that the student surrounds himself or herself with during school. Success will only be available to those who are open to success. If the student in school surrounds himself or herself with negative people, they will inevitably close all doors to success. In other words, no matter how talented, capable the individual is, no matter how supportive and loving the parents are, no matter how patient the teacher is, if the individual chooses to close the door to knowledge, success cannot be found.
+
+In order to achieve success in school, one would have to be open to ideas. As long as we continue to introduce different types of lessons and topics to them, the children will find it easier to capture what their basic interest is all about. Don&#8217;t focus on just academic excellence because that&#8217;s not what success in school is all about. Be open to the possibility of a child being multi-talented in various fields or in sports, or creative in music, etc. The school is the perfect nurturing ground for such talents! We continue to introduce different things to children so that they can find success in LIFE, not just school. 
+
+Sure, a good lesson plan will do the trick to the kids their learning and educational needs are basically covered within the lesson plan but this is not all. We must teach children how to be receptive towards other non-conventional ideas, how to create new technology, broach new topics, and find new ways to do things. All of that, together with academic achievements will determine whether the individual can achieve success in life or not.

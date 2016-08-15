@@ -1,0 +1,21 @@
+---
+id: 1061
+title: What is a Hard Disk Drive?
+date: 2012-12-16T22:38:26+00:00
+author: admin
+layout: post
+guid: http://www.stonetabletsitedesign.com/?p=1061
+permalink: /2012/12/16/what-is-a-hard-disk-drive/
+categories:
+  - General living
+  - Technology
+---
+A Hard Disk Drive (HDD) is a device used by modern computers to permanently store information. The Hard Disk Drive is arguable the most essential part of a computer system in that all the information that is permanently stored is contained within its enclosure, including your computer’s Operating System (OS). Thanks to Hard Disk Drives, long gone are the days when you would have had to keep all your programs and documents stored on removable media such as Floppy Disks or CD-ROMs.
+
+Originally invented in the mid 1950’s and made commercially available in 1956 by International Business Machines (IBM). Called RAMAC (Random Access Method of Accounting and Control), the first Hard Disk Drives contained as much as 50 platters which were 24 inches in diameter and were computers in their own right albeit with a single purpose – to store data. The entire unit which housed the hard drive was the approximate size of two large refrigerators placed side by side. In the 50 or so years since their invention, Hard Disk Drives have steadily and aggressively far out paced Moore’s law. Which stipulates that memory in computers will increase by 100% approximately every 18 months. Hard Disk Drives on the other hand have increased capacity in the same period by approximately 130%, an increase of 100% every nine months in many cases. Such capacity increases are being threatened, however. I
+
+n the years since the first Hard Disk Drive very little has changed apart from logical steps in technology such as the increased speed or improved interfaces, the basic technology has changed very little. There have been no technological leaps, as it were, for Hard Disk Drives beyond their increased miniaturization. Apart from miniaturization and recording media improvements the Hard Disk Drive as a device is almost identical technologically speaking, to the very first, the RAMAC.Hard Disk Drives use a similar technology as is employed in audio and video cassettes. Such audio and video cassettes use a magnetic ribbon wound around a two wheels to store data. To access a particular portion of the data contained on the magnetic ribbon, the device must wind the tape such that the beginning of the section containing the data is underneath the device that reads the data (the magnetic read/write head). This process is called sequential data retrieval because in the process of accessing the particular data, the device must sequentially read each piece of data until the data it’s looking for is found. This process is very time consuming and contributes to wear.
+
+Hard Disks on the other hand use a circular disk-shaped platter upon which the magnetically sensitive compound is laid. Such platters are similar in concept to a Compact Disk (CD) in that the data they hold can be accessed randomly, that the recordable media is in a circular (disk) shape, and that the data is sectioned off into tracks and sectors. Data on a Hard Disk Drive can be accessed randomly because the recordable medium of Hard Disk Drives uses these separated tracks and sectors. By separating the data in such a way, it can be positioned at random intervals of the disk, depending upon the space requirements.
+
+Anywhere from one to seven recordable platters are contained within a modern Hard Disk Drive’s metallic enclosure. Hard Disk Drive platters are perfectly circular disks made from either an aluminum alloy or a more recently a glass ceramic substrate which is a ceramic disk suspended in a glass outer shell. Onto the surfaces of a disk’s platter is laid a thin layer of a magnetically sensitive coating called the recording medium, in modern drives the mixture is a complex amalgam of different materials such as cobalt chromium platinum boron (CoCrPtB) and other such rare metals.

@@ -1,0 +1,20 @@
+---
+id: 845
+title: Modern business strategies and tactics
+date: 2012-04-13T18:29:00+00:00
+author: admin
+layout: post
+guid: http://www.stonetabletsitedesign.com/2012/04/13/modern-business-strategies-and-tactics/
+permalink: /2012/04/13/modern-business-strategies-and-tactics/
+categories:
+  - General living
+---
+Modern business strategies and tactics often concentrate on developing international brands and products, but before developing any product it is important to assess the potential worldwide demand. While most companies do consider this aspect while developing a new product or brand, some companies concentrate on just getting worldwide acclaim and ubiquitous recognition. The result can be customer disappointment when the actual product fails to live up to the hype and disappointing sales.
+
+Companies in the manufacturing and service sectors have realized that to achieve economies of scale they need to formulate management policies based on modern business strategies. Being able to sell the same product or market the same brand at the global level helps to increase the efficiency of their related industrial activities such as product packaging, graphics and advertising. They also gain all of the benefits that are derived from the use of common technology, product specifications, and raw materials. However, being actually able to maintain such global presence in a diverse world is much easier said than done. The simplest solution that companies have is to recognize common product preferences in different countries and make minor changes to the fundamental product design. This is the best way of optimizing their product or service for both the worldwide and local market at the same time. Modern business strategies are also associated with effective management of capital flows, human resources and other factors of production.
+
+The use of information technology in almost every type of industrial process has contributed to the development of modern business strategies and tactics. With the aid of the Internet, information related to any new idea or design is distributed all over the world very quickly. This is why modern business strategies that support product development or facilities development have to move at a much faster speed than ever before. Any business strategy or tactic that is not up-to-date will prove ineffective when it comes to achieving departmental and organizational targets.
+
+Modern business strategies lay stress on using the latest communication tools such as video conferencing and e-mail for improving communication within the organization as well as with clients. Project management techniques used in some of the biggest multinational companies such as Sony, Intel, Microsoft, Time and others are based on such modern business strategies. With multi-billion dollar mergers becoming a norm, companies are concentrating on formulating innovative strategies rather than just concentrating on established management techniques. Organizations such as Glaxo-Welcome and Merck, who have grown through mergers and acquisitions, have reorganized their international product lines with the help of modern business strategies and techniques.
+
+With the help of modern procurement strategies, global giants have managed to build and operate production centers in international locations at the least possible cost and in minimal time. If modern business strategies are implemented properly, they can easily accommodate for the diversity that exists between countries. These can be used to develop innovative project management methods that can help achieve greater uniformity and economies of scale across the business. They encourage knowledge-based innovation and help develop the ability to execute on commitments and deliver higher standards of customer satisfaction. Modern business strategies revolve around producing and marketing international products and brands that are then tailored to local markets. As such, in today&#8217;s world of globalization, the concept of localization has become inherent in almost all modern business strategies.
